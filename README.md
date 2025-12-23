@@ -58,8 +58,8 @@
 ---
 
 ### 📫 Contact Me
-- 📧 Email: your@email.com
-- 💬 GitHub: https://github.com/YOUR_USERNAME
+- 📧 Email: azoz.786000@gmail.com
+- 💬 GitHub: https://github.com/tbntbn290-gif
 
 ---
 
